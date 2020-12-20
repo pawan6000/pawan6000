@@ -42,4 +42,4 @@
 
 
 [instagram]: https://instagram.com/codeSTACKr
-[linkedin]: https://linkedin.com/in/codeSTACKr
+[linkedin]: https://www.linkedin.com/in/pawan-awar-66a756195/
