@@ -1,12 +1,12 @@
-### Hi there, I'm Pawan ðŸ‘‹
+### Hi there, I'm Pawan 
 
 
 
 ## I'm a Developer !
 
 
-- ðŸŒ± Iâ€™m currently learning everything ðŸ¤£
-- ðŸ‘¯ Iâ€™m looking to collaborate with other content creators
+- I'm currently learning everything 
+- I'm looking to collaborate with other content creators
 
 
 
